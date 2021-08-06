@@ -7,7 +7,8 @@ De maneira independente utilizamos o espaço do Parque Linear Cantinho do Céu (
  
 ## Lista de trabalhos atividades que o coletivo desenvolve:
 
-* Intervenções Artisticas
+* *__Intervenções__* Artisticas
+
    * Elfa da Mata
    * Fada do Destino
    * Fadinha
