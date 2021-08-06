@@ -5,7 +5,7 @@ O __Coletivo Mandalas a Bordo__ nasceu em Outubro de 2015, tendo como representa
 Tem a Area de Cura, onde partilhamos atividades de Reiki, Thetahealing, Argiloterapia, Massagem Vibracional, Yoga, Massoterapia e também a Roda de Cura. Intervenções com os Pirofadélicos, Elfa da Mata, Pintura Facial, Fada do Destino e Malabares e a música fica por conta dos DJS que trazem a cultura do Trance e sua arte na música psicodélica, formando assim um grande bolo com recheio de união, lazer e harmonia. Através da direção coletiva e do pensar compartilhado, o intuito também é de buscar maneiras de práticas de convívio para experimentar maneiras ativas de se relacionar e atuar em espaços diferentes propondo novas possibilidades de experiências, sendo esse um modo de interagir, socializar e de gerar encontros, tendo as oficinas como grandes representantes deste papel. Mandalas é composto por 36 pessoas construindo e partilhando práticas e atividades para todos sem exceção. O coletivo tem como missão espalhar e propagar o amor, sintonia, paz, união e expansão dos seres.
 De maneira independente utilizamos o espaço do Parque Linear Cantinho do Céu (Lago Azul) - Grajaú, respeitando e fortalecendo a energia que a natureza nos traz, para realizar anualmente 2 eventos para a comunidade. Tendo participações nos seguintes festivais e eventos: Floresta Infectada – 2015, Respect Festival – 2016, Santa Liberdade 2016/2017/2018 e 2019, Lá Psic – 2017, Time Machine – 2018, Festival Semear 2019, Redbull Amaphiko 2018, 3 em 1 Guetto Sounds, TEUCPA, entre outros.
  
-## Lista de trbalhos atividades que o coletivo desenvolve:
+## Lista de trabalhos atividades que o coletivo desenvolve:
 
 * Intervenções Artisticas
    * Elfa da Mata
