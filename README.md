@@ -1,6 +1,8 @@
 # Mandalas a Bordo 
- ![Mandalas a Bordo - Projeto Simbótica](https://user-images.githubusercontent.com/88512488/128570430-de6973ad-50d1-4f3c-8ba5-8968e696ba9d.png)![logo mandalas](https://user-images.githubusercontent.com/88512488/128572319-66486ec3-6b72-49db-b583-7529142c5140.png)
-![Mandalas a Bordo - Projeto Sibiótica](https://user-images.githubusercontent.com/88512488/128572337-4b6e7e01-2cd6-4155-8828-6670bbe64158.png)
+ ![Mandalas a Bordo - Projeto Simbótica](https://user-images.githubusercontent.com/88512488/128573393-819a3809-0a64-430b-b5e5-ff4f6a591276.png)
+![logo mandalas](https://user-images.githubusercontent.com/88512488/128573402-37b89700-4f41-4b28-aad0-5570a2b0c4a6.png)
+![Mandalas a Bordo - Projeto Sibiótica](https://user-images.githubusercontent.com/88512488/128573413-9268872a-628d-49f1-b46c-56adb3321df9.png)
+
 
 
 
