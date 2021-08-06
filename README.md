@@ -7,7 +7,7 @@ De maneira independente utilizamos o espaço do Parque Linear Cantinho do Céu (
  
 ## Lista de trabalhos atividades que o coletivo desenvolve:
 
-* *__Intervenções__* Artisticas
+* *__Intervenções Artisticas__*
 
    * Elfa da Mata
    * Fada do Destino
@@ -18,7 +18,8 @@ De maneira independente utilizamos o espaço do Parque Linear Cantinho do Céu (
 
 ***
 
-* Espaço de Cura
+* *__Espaço de Cura__*
+
    * Roda de Cura 
    * Argiloterapia
    * Yoga
@@ -29,7 +30,8 @@ De maneira independente utilizamos o espaço do Parque Linear Cantinho do Céu (
 
 ***
 
-* Oficinas
+* *__Oficinas__*
+
    * Mandala Olho de Deus
    * Mandalas em MDF
    * Oficina de Macrame
@@ -44,12 +46,14 @@ De maneira independente utilizamos o espaço do Parque Linear Cantinho do Céu (
    
 ***
 
-* Graffiti - Arte Urbana
+* *__Graffiti - Arte Urbana__*
+
    * Live Paint
 
 ***
 
-* Main Floor- DJ's
+* *__Main Floor- DJ's__*
+
    * Muirakitan - Forest
    * Mulungu - Hitech
    * Satanakia - Dark Hitech
@@ -60,7 +64,8 @@ De maneira independente utilizamos o espaço do Parque Linear Cantinho do Céu (
 
 ***
 
-* Ações Solidárias
+* *__Ações Solidárias__*
+
    * Mandalas a Bordo Solidário - Junho/2020
    * Doação de Marmitex - Aloha Comida Caseira
    * Campanha de Agasalhos
